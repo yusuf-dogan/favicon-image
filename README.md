@@ -25,3 +25,15 @@
 ![kuranı-kerim](https://github.com/yusuf-dogan/favicon-image/assets/98260376/7355b320-7173-4a28-a8af-ab063606a9a4)
 
 ![amenerrasulu](https://github.com/yusuf-dogan/favicon-image/assets/98260376/bc21fbd8-8426-4762-9557-ecfabbb7e3eb)
+
+![istihare-namazi](https://github.com/yusuf-dogan/favicon-image/assets/98260376/85766258-02b7-473d-b878-fbc4b72218e4)
+
+![istihare-namazi-2](https://github.com/yusuf-dogan/favicon-image/assets/98260376/5b0417a1-3138-4b59-a6ab-bda38db6cc76)
+
+![fatiha-suresi](https://github.com/yusuf-dogan/favicon-image/assets/98260376/956b347e-3a6a-48b0-9a44-08ed6217740c)
+
+![kafirun-suresi](https://github.com/yusuf-dogan/favicon-image/assets/98260376/61947a69-10c9-4cec-b460-143215a82149)
+
+![ihlas-suresi](https://github.com/yusuf-dogan/favicon-image/assets/98260376/f4c936be-fbfa-4375-8b98-6eaac967d082)
+
+![istihare-duası](https://github.com/yusuf-dogan/favicon-image/assets/98260376/41a72bcd-c232-4c48-8530-b33713586bcb)
