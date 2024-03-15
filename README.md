@@ -19,3 +19,9 @@
 ![uyku-nedir-2](https://github.com/yusuf-dogan/favicon-image/assets/98260376/f459123a-c8ee-43e7-93aa-1a12107842da)
 
 ![uyku-nedir-3](https://github.com/yusuf-dogan/favicon-image/assets/98260376/a52ff937-edf9-4598-9d8b-fad7a7657f09)
+
+![dua-eden-eller](https://github.com/yusuf-dogan/favicon-image/assets/98260376/912b621e-74c7-4012-9c21-bd0d9cf858b9)
+
+![kuranı-kerim](https://github.com/yusuf-dogan/favicon-image/assets/98260376/7355b320-7173-4a28-a8af-ab063606a9a4)
+
+![amenerrasulu](https://github.com/yusuf-dogan/favicon-image/assets/98260376/bc21fbd8-8426-4762-9557-ecfabbb7e3eb)
