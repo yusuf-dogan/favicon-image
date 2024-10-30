@@ -90,6 +90,7 @@
 
 ![famous-dreams-3](https://github.com/yusuf-dogan/favicon-image/assets/98260376/dd4f9f8b-e821-491d-b2f3-de14c85733ca)
 
+![yapay-zeka-arka-plan](https://github.com/user-attachments/assets/acebb404-bc72-4b88-9175-50cf9f59945a)
 
 
 
